@@ -1,3 +1,5 @@
+![1690148177395](https://github.com/Edosyaputra488/Edosyaputra488/assets/140353590/6882bddd-6f40-46e8-aa25-62de2bf97f1b)
+[diff - Wikipedia.pdf](https://github.com/Edosyaputra488/Edosyaputra488/files/12145611/diff.-.Wikipedia.pdf)
 ### Hi there 👋
 
 <!--
